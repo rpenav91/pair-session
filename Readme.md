@@ -1,1 +1,0 @@
-PAIR SESSION AA / HU
